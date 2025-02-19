@@ -7,7 +7,7 @@
 - 4 Tbsp white chocolate chips or chopped white chocolate
 - 1 shot Espresso Roast
 - 1 cup 2% milk
-- Whipped cream
+- Whipped cream - 35gm
 
 ## How to make White Chocolate Mocha​
 

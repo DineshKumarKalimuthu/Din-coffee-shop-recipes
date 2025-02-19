@@ -3,9 +3,8 @@
 ## Description: Standard caffé latte
 
 ## Ingredients
-
-- 4 oz espresso roast
-- 4 cup whole milk
+- 1 oz espresso roast
+- 1 cup whole milk
 - Milk frother
 - Optional sweetener
 
